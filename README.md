@@ -1,1 +1,1 @@
-# rsschool-cv
+https://cashoutthebag.github.io/rsschool-cv/cv
