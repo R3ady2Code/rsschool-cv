@@ -1,1 +1,1 @@
-https://cashoutthebag.github.io/rsschool-cv/cv
+https://cashoutthebag.github.io/rsschool-cv/
